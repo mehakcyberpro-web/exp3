@@ -1,6 +1,6 @@
 # Personal Information
 
-Name : Rahul Jaluthria UID : 24BCY70054 Class : 24BCY-3(A)
+Name : mehakpreet kaur UID : 24BCY70046 Class : 24BCY-3(A)
 
 ---
 
